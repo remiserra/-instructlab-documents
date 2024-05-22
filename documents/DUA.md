@@ -1,0 +1,1 @@
+DUA stands for: Distribution and Usage Authorization
